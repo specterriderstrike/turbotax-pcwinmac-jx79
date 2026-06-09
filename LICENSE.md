@@ -1,4 +1,4 @@
-# 
+# Automatic TurboTax tools for Mac OS | Instant TurboTax tools for PC Windows. Featuring tax planning and automatic sync — optimized for maximum performance on every platform.
 
 
 
